@@ -9,7 +9,7 @@ Now if you’ve payed any attention to psychologists over the past five years or
 I believe our ancestors and many now know that we are one consciousness experiencing all moments at once. Now the best route would be to mathematically prove these theories. But I am a programmer not a mathematician. I abstract the levels so I can better understand it in smaller chunks. 
 However with the mix of classical and quantum computers models as an extension of ourselves could help us reach a higher state of being. 
 
-The pursuit of genetic perfection is a fallacy. There is no point in achieving some goal others think is perfect. What is perfect for me is not perfect for you. There for the paths we choose to take are all different. Not a single one is the same. They may be very similar, but all realities would have a distinct difference from other versions. 
+The pursuit of genetic perfection via genetic engineering is a dangerous path. There is no point in achieving some goal others think is perfect. What is perfect for me is not perfect for you. There for the paths we choose to take are all different. Not a single one is the same. They may be very similar, but all realities would have a distinct difference from other versions. 
 You can reach out to other realities and interact with them if similar laws of physics are in that other universe. 
 Transferring to a universe with no rules or laws would require higher levels of enlightenment I have yet to achieve. Extending yourself through computer brain interface would be one method of seeing things humans cannot. There for becoming impossible humans. Always existing and having your ghost as an anchor to explore the infinite. 
 
